@@ -1,0 +1,1 @@
+El morado es un color que trasmite sensibilidad, deloicadeza, elegancia, lujo o espiritualidad.
